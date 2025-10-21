@@ -1,5 +1,4 @@
 # Orthopedic-pain-management-Gurugram-hospital
-ChatGPT said:
 
 Orthopedic pain management focuses on diagnosing, treating, and preventing pain that affects the bones, joints, muscles, ligaments, and tendons. At Kalyani Hospital, specialized orthopedic pain management services are provided to help patients regain mobility, strength, and quality of life. The hospital’s expert team of orthopedic specialists, pain physicians, and physiotherapists work together to design customized treatment plans based on the root cause of pain—whether it’s due to arthritis, fractures, sports injuries, joint degeneration, or post-surgical recovery.
 
